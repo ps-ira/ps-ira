@@ -1,6 +1,5 @@
 - 🌻 Hi, I’m @ps-ira
 - ✨ I’m interested in coding and drawing
-- 🧡 I’m currently learning coding on Codingal
 - 📧 Mail me: purnatasahaira2@gmail.com
 - 😄 Pronouns: She/Her
 
